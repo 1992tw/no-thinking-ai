@@ -1,0 +1,2 @@
+# no-thinking-ai
+aa
